@@ -9,3 +9,6 @@
 ##### End day   - 15/1/2020
 
 ####__LOG__
+
+
+######EVERNOTE NOTEBOOK - <>
